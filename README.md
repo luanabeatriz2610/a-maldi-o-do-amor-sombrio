@@ -1,1 +1,0 @@
-# a-maldi-o-do-amor-sombrio
